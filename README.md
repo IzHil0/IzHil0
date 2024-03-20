@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @IzHil0
+- 👋 Hi, I’m @IzHil0 but i go by hilo
 - 👀 I’m interested in ... arts
 - 🌱 I’m currently learning ...  computer science and art
 - 💞️ I’m looking to collaborate on ... proxys and other fun things
